@@ -4,6 +4,8 @@ I love malatang
 
 [Markdown stuff](https://sunmd0318.github.io/silli-willi/something_random.md)
 
+---
+
 # Top 5 Youtube Thumbnails of all Time
 
 **1. An IQ too High?**
@@ -15,8 +17,8 @@ I love malatang
 **3. How NBA Legends got their Jersey Number**
 ![How NBA Legends got their Jersey Number](https://i.ytimg.com/vi/30K1mX60HrQ/maxresdefault.jpg)
 
-**4. Sorry, You're not a Sigma
+**4. Sorry, You're not a Sigma**
 ![Sorry, You're not a Sigma](https://i.redd.it/9ntcx8u5cj7f1.jpeg)
 
-**5. Please STOP!
+**5. Please STOP!**
 ![Please STOP!](https://media.tenor.com/csBoPaC7tVgAAAAe/thumbnail-please-stop-matpat.png)
