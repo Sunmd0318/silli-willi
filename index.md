@@ -9,16 +9,21 @@ I love malatang
 # Top 5 Youtube Thumbnails of all Time
 
 **1. An IQ too High?**
+
 ![An IQ too High?](https://i.ytimg.com/vi/7aWL2iEb6y4/maxresdefault.jpg)
 
 **2. Does He Know?**
+
 ![Does He Know?](https://i.ytimg.com/vi/bIsp1K8eJG0/maxresdefault.jpg)
 
 **3. How NBA Legends got their Jersey Number**
+
 ![How NBA Legends got their Jersey Number](https://i.ytimg.com/vi/30K1mX60HrQ/maxresdefault.jpg)
 
 **4. Sorry, You're not a Sigma**
+
 ![Sorry, You're not a Sigma](https://i.redd.it/9ntcx8u5cj7f1.jpeg)
 
 **5. Please STOP!**
+
 ![Please STOP!](https://media.tenor.com/csBoPaC7tVgAAAAe/thumbnail-please-stop-matpat.png)
