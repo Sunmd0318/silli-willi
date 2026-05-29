@@ -9,7 +9,7 @@ I love malatang
 # Top 5 Youtube Thumbnails of all Time
 
 **1. An IQ too High?**
-![An IQ too High?](https://www.reddit.com/media?url=https%3A%2F%2Fpreview.redd.it%2Fan-iq-too-high-v0-rltwlakcsfvg1.png%3Fwidth%3D498%26format%3Dpng%26auto%3Dwebp%26s%3Da85819a53be0e744bf24a7f5362129bcfceea669)
+![An IQ too High?](https://i.ytimg.com/vi/7aWL2iEb6y4/maxresdefault.jpg)
 
 **2. Does He Know?**
 ![Does He Know?](https://i.ytimg.com/vi/bIsp1K8eJG0/maxresdefault.jpg)
